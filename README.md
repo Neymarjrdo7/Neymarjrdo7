@@ -10,4 +10,4 @@
   
 **@_7lkzin**
 
-![](https://tenor.com/pt-BR/view/neymar-neymar-jr-neymar-junior-neyney-neymi-gif-13352252802770326814)
+![](https://media1.tenor.com/m/LqLDIyTDMlIAAAAC/neymar-neymar-jr.gif)
